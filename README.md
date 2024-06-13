@@ -1,4 +1,4 @@
-# losercore
+
 
 most of my stuff is in the linked profiles below my bio! except forrr.... interests and dni :3 so that's what this is! + some other shit no one asked for !
 
