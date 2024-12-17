@@ -11,6 +11,10 @@ arcane, **five nights at freddy's**, genshin (sorry), regretevator, dialtown, **
 
 basic dni criteria (homophobic, racist, etc), loli/shotacon, endo systems/neutral opinioned ppl, lesboys, proshippers, people who hate on m/f vivid bad squad ships, annoying people, freaks, fans of the coffin of andy and layley/bandori (different reasons), idk people who bash people's (harmless) interests
 
+# btw ...
+
+i usually have a habit of interacting before i read names sometimes also i love to sit with random people with c+h in their names so . if youre ever made uncomfortable please just say something and ill go away i PROMISE i wont take offense LOL
+
 # BONUS !!! i'm a big ass pjsk multishipper so here's a list of ships i enjoy in no particular order (favorites are bolded):
 
 **kanamafu** (projecting), **shizuenakasa**, **akian**, akikoha, **nenetoya**, **polysquad**, polysho, **emurui**, nenekasa, **polycgo**, akinenean, mizushiho, **sakishiho**, honaemuena, shizurui, shizuaki, haruan, idfk ill remember more later
