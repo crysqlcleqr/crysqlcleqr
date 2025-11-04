@@ -14,7 +14,4 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
-test
-test
-test
-test
+₀₁cuddle + hide ALWAYS ok , ₀₂friend reqs on ponytown or disc ok , ₀₃skin copying is for CLOSE FRIENDS only
