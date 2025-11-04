@@ -14,4 +14,18 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
-₀₁cuddle + hide ALWAYS ok , ₀₂friend reqs on ponytown or disc ok , ₀₃skin copying is for CLOSE FRIENDS only
+₀₁ cuddle + hide ALWAYS ok 
+
+₀₂ friend reqs on ponytown or disc ok 
+
+₀₃ skin copying is for CLOSE FRIENDS only
+
+₀₄ skin INSPO ok
+
+₀₅ source + media mates always welc to int
+
+₀₆ w2i, offtab most of the time
+
+₀₇ open 2 conversations usually !!
+
+₀₈ pls talk to us we no bite :3
