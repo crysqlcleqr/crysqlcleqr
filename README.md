@@ -1,3 +1,3 @@
-![](https://64.media.tumblr.com/e3e05575f71d7dea08d4c4f602e11d8a/1d94f68b6af5f37f-c7/s640x960/bc1e4ce05d0d6a4d294da75845eb302e22ec07a0.gif)
+![](https://media.discordapp.net/attachments/1414157351837110292/1435273668245586052/ezgif-8851167f44f0f4.webp?ex=690b5e44&is=690a0cc4&hm=2dd033984f13e55f5895c388767a4d699708d8b8ad845d704f8a6a264b48d817&=&animated=true)
 
 
