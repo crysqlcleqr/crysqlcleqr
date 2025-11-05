@@ -12,7 +12,7 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
-![](https://cdn.discordapp.com/attachments/1414157351837110292/1435288333805682878/output-onlinegiftools.gif?ex=690b6bed&is=690a1a6d&hm=34a20298eb212ab9c2ee729abfeb772692b07bdc49fdf99af95bf8f3ebd40e7d)  ![](https://media.discordapp.net/attachments/1414157351837110292/1435288510096474202/pony-town-_-__p-trot-blinking-padded-toy417-2x.gif?ex=690b6c17&is=690a1a97&hm=b2139fa3898e0f4b99c50a46ef69e50c925c2bf9c1107674233085dba68a8ac8&=)  ![](https://media.discordapp.net/attachments/1414157351837110292/1435289384860516493/output-onlinegiftools_2.gif?ex=690b6ce7&is=690a1b67&hm=e043bea3880aa1816955304be8bb2551d593469fd165c95d9779938570d9003e&=)
+![mafuyu asahina, project sekai](https://cdn.discordapp.com/attachments/1414157351837110292/1435288333805682878/output-onlinegiftools.gif?ex=690b6bed&is=690a1a6d&hm=34a20298eb212ab9c2ee729abfeb772692b07bdc49fdf99af95bf8f3ebd40e7d)  ![oc/sona](https://media.discordapp.net/attachments/1414157351837110292/1435288510096474202/pony-town-_-__p-trot-blinking-padded-toy417-2x.gif?ex=690b6c17&is=690a1a97&hm=b2139fa3898e0f4b99c50a46ef69e50c925c2bf9c1107674233085dba68a8ac8&=)  ![GIFT FROM LUMI! aether, genshin impact](https://media.discordapp.net/attachments/1414157351837110292/1435289384860516493/output-onlinegiftools_2.gif?ex=690b6ce7&is=690a1b67&hm=e043bea3880aa1816955304be8bb2551d593469fd165c95d9779938570d9003e&=)
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
@@ -34,6 +34,3 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
-
-
-![ohhh im musicing it](https://spotify-recently-played-readme.vercel.app/api?user=freshymusicz)
