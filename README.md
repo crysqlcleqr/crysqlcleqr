@@ -34,3 +34,6 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=freshymusicz&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=freshymusicz&redirect=true)
