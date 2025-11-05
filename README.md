@@ -31,3 +31,9 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 ₀₇ open 2 conversations usually !!
 
 ₀₈ pls talk to us we no bite :3
+
+
+◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
+
+![ohhh im musicing it](https://spotify-recently-played-readme.vercel.app/api?user=freshymusicz)
