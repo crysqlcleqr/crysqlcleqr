@@ -12,9 +12,12 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
+
 ![mafuyu asahina, project sekai](https://cdn.discordapp.com/attachments/1414157351837110292/1435288333805682878/output-onlinegiftools.gif?ex=690b6bed&is=690a1a6d&hm=34a20298eb212ab9c2ee729abfeb772692b07bdc49fdf99af95bf8f3ebd40e7d)  ![oc/sona](https://media.discordapp.net/attachments/1414157351837110292/1435288510096474202/pony-town-_-__p-trot-blinking-padded-toy417-2x.gif?ex=690b6c17&is=690a1a97&hm=b2139fa3898e0f4b99c50a46ef69e50c925c2bf9c1107674233085dba68a8ac8&=)  ![GIFT FROM LUMI! aether, genshin impact](https://media.discordapp.net/attachments/1414157351837110292/1435289384860516493/output-onlinegiftools_2.gif?ex=690b6ce7&is=690a1b67&hm=e043bea3880aa1816955304be8bb2551d593469fd165c95d9779938570d9003e&=)
 
+
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
 
 ₀₁ cuddle + hide ALWAYS ok 
 
@@ -37,3 +40,8 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=freshymusicz&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=freshymusicz&redirect=true)
+
+
+◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
+
