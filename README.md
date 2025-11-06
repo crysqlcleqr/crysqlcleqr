@@ -19,10 +19,7 @@ kanade yume , mafuyu irl ![](https://64.media.tumblr.com/04166904be74fac9048ab8e
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
 
-i kiss + wisp a crown to show i love ur skin  , i'm offtab most of the time so w2i and be patient please !!  , i love every kanade skin  , i LOVE sitting in big groups of ppl  , 
-
-
-i rarely hide BUT i do hide freely  , no dni i just won't talk to you if i don't like the media ur skin is from  , ships r always always always okay i love even rarepairs  
+i kiss + wisp a crown to show i love ur skin  , i'm offtab most of the time so w2i and be patient please !!  , i love every kanade skin  , i LOVE sitting in big groups of ppl  , i rarely hide BUT i do hide freely  , no dni i just won't talk to you if i don't like the media ur skin is from  , ships r always always always okay i love even rarepairs  !!
 
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
