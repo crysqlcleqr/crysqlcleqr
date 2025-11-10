@@ -10,7 +10,7 @@
 
 _kanade yume , mafuyu irl_ ![](https://64.media.tumblr.com/9976c18e4a2ce97c97d5a4d1a927be4e/2932e0b5e324cb93-75/s75x75_c1/49e94a58811fd12e71fb45c6e2311c284bd896f2.gif)
 
-_usually offtab , w2i_
+_usually off-tab , w2i_
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
@@ -31,18 +31,17 @@ _please do not copy any of my skins, they are either made by myself or gifts fro
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
 
-![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . i often forget to respond, i apologize in advance.
+![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _i often forget to respond, i apologize in advance._
 
-![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . whispers are always welcome, i love talking to people!
+![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _whispers are always welcome, i love talking to people!_
 
-![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . i'm always in a party, please don't invite me to another.
+![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _i'm always in a party, please don't invite me to another._
 
-![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . don't interact if you intend to start drama.
+![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _don't interact if you intend to start drama._
 
-![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . i sit off-tab most of the time, i apologize if i don't see you interact with me.
+![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _i sit off-tab most of the time, i apologize if i don't see you interact with me._
 
-![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . feel free to sit with me whenever, i love to sit with people.
-
+![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _feel free to sit with me whenever, i love to sit with people._
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
@@ -52,6 +51,8 @@ _please do not copy any of my skins, they are either made by myself or gifts fro
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=freshymusicz&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=freshymusicz&redirect=true)
 
+_this is what i'm currently listening to._
+
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
 ![](https://64.media.tumblr.com/64bcfed42976aefda02d4ac14baaa4eb/9f4a6c817cf4ea27-91/s2048x3072/868db1bce929c8d46be4e5ebd571767604355e41.pnj)
@@ -59,12 +60,40 @@ _please do not copy any of my skins, they are either made by myself or gifts fro
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
 
-ummm figuring out what to put here Ok?‎ 
+_ummm figuring out what to put here Ok?‎_
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
+![](https://upload.wikimedia.org/wikipedia/commons/5/59/Empty.png)
+
+⠀⠀⠀ ⋮⠀⠀⠀ ⠀ ⠀⠀ ⋮⠀⠀⠀ ⠀⠀⠀ ⠀ ⋮
+
+⠀⠀⠀ ⋮⠀⠀⠀ ⋮⠀⠀⠀☆⠀⠀⠀ ⋮
+
+⠀⠀⠀ ☆⠀⠀⠀ ⋮⠀⠀⠀ ⠀⠀⠀ ⋮⠀⠀⠀⠀☆
+
+⠀⠀ ⠀⠀ ☆⠀⠀⠀ ⠀⠀⠀ ⋮
+
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ☆
 ‎
+
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/5/59/Empty.png)
+
+
+. 
+
+O
+
+｡˚○
+
+
 ![](https://64.media.tumblr.com/8d2e11aeccdea78e9beee2c5fa16de29/9f4a6c817cf4ea27-d3/s2048x3072/c71c486095af4ae4023c98042c65bf1271ae52af.pnj)
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
+
+
 
 ![](https://64.media.tumblr.com/bc0c1e817881502bc8f739b0c9448c08/64fd913d729073f6-c6/s640x960/b08cc8e1ba6b440d96efc94c4af844081371acdb.gif)
