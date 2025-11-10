@@ -1,8 +1,6 @@
 <div align="center">
 
-
 ![](https://64.media.tumblr.com/46fa040237f083570988541b4eef76cf/2cc5c473008f459f-8c/s2048x3072/f84db246788fd5bcc5690378e474ca96bfba0de8.pnj)
-
 
 # ![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gif)  _yuki¹ ノ aether²_ ![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gif)
 
@@ -29,7 +27,6 @@ _please do not copy any of my skins, they are either made by myself or gifts fro
 ![](https://64.media.tumblr.com/58dd5aafdf2dd7603de274298fac97ea/9f4a6c817cf4ea27-cf/s2048x3072/33477f2310e93d317c23756f2267e0c2dc937397.pnj)
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
-
 
 ![](https://64.media.tumblr.com/ade07c0f8445eae36d2e4d04bff7ef24/2f692420ece9ceb5-b7/s75x75_c1/f1fc428777bc2db7694d07f983e451f1b984e9fc.gif) . _i often forget to respond, i apologize in advance._
 
@@ -79,12 +76,8 @@ _ummm figuring out what to put here Ok?‎_
 ⠀⠀ ⠀⠀ ☆⠀⠀⠀ ⠀⠀⠀ ⋮
 
 ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ☆
-‎
-
-
 
 ![](https://upload.wikimedia.org/wikipedia/commons/5/59/Empty.png)
-
 
 . 
 
@@ -92,12 +85,8 @@ O
 
 ｡˚○
 
-
 ![](https://64.media.tumblr.com/8d2e11aeccdea78e9beee2c5fa16de29/9f4a6c817cf4ea27-d3/s2048x3072/c71c486095af4ae4023c98042c65bf1271ae52af.pnj)
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
-
-
-
 
 ![](https://64.media.tumblr.com/bc0c1e817881502bc8f739b0c9448c08/64fd913d729073f6-c6/s640x960/b08cc8e1ba6b440d96efc94c4af844081371acdb.gif)
