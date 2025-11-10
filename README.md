@@ -53,6 +53,10 @@ _please do not copy any of my skins, they are either made by myself or gifts fro
 
 _this is what i'm currently listening to._
 
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=freshymusicz)
+
+_this is what i've played recently. expect a lot of looping songs._
+
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
 ![](https://64.media.tumblr.com/64bcfed42976aefda02d4ac14baaa4eb/9f4a6c817cf4ea27-91/s2048x3072/868db1bce929c8d46be4e5ebd571767604355e41.pnj)
